@@ -1,1 +1,0 @@
-# second-interesting-project
